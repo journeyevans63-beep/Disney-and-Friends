@@ -1,2 +1,2 @@
-# The-Fammmm
-This is my family. Every year we have Christmas party and we wear matching pajamas.
+# Disney-Adults
+This is my friends and I at Disneyland. We love it there! Righr before the semester started we had a Disney trip.
